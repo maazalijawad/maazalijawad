@@ -1,1 +1,7 @@
-I am a student - lowk don't contact me unless it's for serious purposes
+Student @ Lambert High School (Class of 2028)
+
+Learning about Web Development and AI Deployment @ Coursera
+
+
+
+  
